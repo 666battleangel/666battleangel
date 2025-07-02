@@ -1,5 +1,5 @@
 <img src="https://i.pinimg.com/originals/85/91/69/859169b939fafb2c78eed5f7eabd70c4.gif">
-> @666battleangel is pleased to meet you! >⩊< <br>
+> @666battleangel enters the system <br><br>
       
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡶⠶⢦⣄⠀⠀⠀⠀⠀⣴⠟⠛⢧⣠⣶⣿⠻⣆⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⠁⡟⠦⠌⠛⠉⠉⠉⢹⠇⢠⣶⣼⣷⣞⢙⣧⣿⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<br>
